@@ -1,0 +1,5 @@
+- Hello everynyan me Aman a indian software developer(just a dream for now) learning web development and python.
+- I like to shit, plays basketball, suck at grammar, phyiscs, make friends and watch anime.
+- I watch anime like haikyuu and run with wind
+- I LOVE MAKING FREINEDS!!!!!!
+- Arigato for reading( :
